@@ -1,0 +1,2 @@
+# PROYECTO_PRIMERPARCIAL0000
+pinturas y libros 
